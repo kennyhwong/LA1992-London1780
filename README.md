@@ -1,4 +1,4 @@
-#LA 1992/London 1780
+# LA 1992/London 1780
 
 ***LA 1992/London 1780: Sounding Out a Crowd*** is an exhibition highlighting the eleven original singles from the album, *Never Say Die: A Sonic Tribute to the LA 1992 Rebellion*, a compilation of student sound projects inspired by studying the representation of two urban uprisings: the Gordon Riots of 1780 in Charles Dickens’ Barnaby Rudge, and the one that occurred more than twenty-five years ago in students’ own neighborhood.
 
